@@ -21,8 +21,9 @@ Actualmente, son proyectos de mi experiencia académica en HENRY
 - Sequelize
 - Figma
 
+NO DUDES EN CONTACTARME!
 🚀Estoy en la búsqueda de nuevos desafíos que me permitan crecer personal y profesionalmente.🚀
 
 📧 olidallachiesa@gmail.com
-🌐 github.com/OliviaDallachiesa
+🌐 linkedin.com/in/olivia-dallachiesa
 
