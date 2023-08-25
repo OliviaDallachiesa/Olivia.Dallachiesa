@@ -22,6 +22,7 @@ Actualmente, son proyectos de mi experiencia académica en HENRY
 - Figma
 
 NO DUDES EN CONTACTARME!
+<br/>
 🚀Estoy en la búsqueda de nuevos desafíos que me permitan crecer personal y profesionalmente.🚀
 
 📧 olidallachiesa@gmail.com
